@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @LeonYeend
-- 👀 I’m interested in streaming
 - 📫 How to reach me https://leonyeend.carrd.co via any of those accounts listed instgram/twitter are the best ones for a kind of quick reply.
 
 <!---
